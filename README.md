@@ -1,4 +1,4 @@
-# Blox-Fruits-script
+# Best Blox Fruits Script Hub | Auto Farm, Fruit Finder, No Key & Mobile Support 2025
 Unlock the ultimate Blox Fruits script: auto farm, fruit notifier, chest hunt, auto raid, stat boost &amp; more. No key system, safe &amp; mobile compatible. Get fast levels, max bounty, and all fruits easily with this powerful, updated 2025 tool.
 🌊 Blox Fruits Script Hub 2025 | Auto Farm, Fruit Notifier, No Key, Mobile Supported
 
